@@ -24,21 +24,22 @@ Meanwhile, I started to feel more and more dissatisfied with the work environmen
 I learned the importance of having a purpose in my life. I wasn’t sure yet what it was, but it felt more and more important to spend my time on meaningful projects.
 
 **My spiritual awakening**
+
 I started to gain more experience with recreational psychedelics and shamanic plant medicine. At the end of 2013 I did an Iboga experience, and in 2015 I partook in my first Ayahuasca experience.
 
 Ayahuasca is a psychedelic tea, brewed by indigenous tribes in the Amazon. I had had quite some experience with psychedelics before, but this experience turned my world upside down.
 
 For 8 hours I felt bliss and had the most loving and joyful moments of my life. Laying in fetus position I felt nurtured by mother earth. The experience gave me the feeling of being in touch with a higher intelligence or consciousness. A feeling I will never forget. 
 
-I saw visions of a green/blue tree, the tree of life (Noya Rao), and heard a voice telling me that I would do something with this spiritual experience in the future, some kind of public function. I had no clue what it all meant. I would only become clear 8 years later...
+I saw visions of a green/blue tree, the tree of life (Noya Rao), and heard a voice telling me that I would do something with the spiritual experience in the future, some kind of public function. I had no clue what it all meant. I would only become clear 8 years later...
 
-I realized I wasn't very confident lately, and that I needed to regain my power before I would be able to act in public. The experience also touched on some habits that were not serving, the recreational use of alcohol and cocaine. I fully stopped drinking for a while.
+I realized I wasn't very confident lately, and that I needed to regain my power before I would be able to act in public. The experience also touched on some habits that were not serving, the recreational use of alcohol and occasionally use of cocaine. I fully stopped drinking for a while after the experience.
 
 **The suffering**
 
-After a trip to Africa in late 2015, I started to notice strange physical symptoms in my body. It started very gradually. Over the course of two years I started to become sick more often. In the beginning of 2018 the problems became much worse. The sickness became worse. For over 8 months I had the feeling of a stomach bug at least half of the time. I started to become really worried and went to visit more and more doctors. They all concluded, even though I could hardly do anything any more, that I was fine because their tests didn’t show anything. From that summer I could only work half-time, sharing my time between work, my bed, and the sofa. Until I tested positive for a parasite. At first, it was a relief. With the help of strong medicine and a few rounds of Kambo, I was able to eradicate the parasite.
+After a trip to Africa in late 2015, I started to notice strange physical symptoms in my body. It started very gradually. Over the course of two years I started to become sick more often. In the beginning of 2018 the problems became much worse. The sickness became worse. For over 10 months my stomach hurt intenesly. I had the feeling of a stomach bug at least half of the time. I started to become really worried and went to visit more and more doctors. They all concluded, even though I could hardly do anything any more, that I was fine because their tests didn’t show anything. From that summer I could only work half-time, sharing my time between work, my bed, and the sofa. Until I tested positive for a parasite. At first, it was a relief. With the help of strong medicine and a few rounds of Kambo, I was able to eradicate the parasite.
 
-Unfortunately, the problems of fatigue relapses after being exposed to mild (physical) stress remained. After a series of doctor’s visits, I received the diagnosis of Post-Infectious Fatigue Syndrome. A chronic diagnosis, from which less than [10% fully recover](https://web.archive.org/web/20221125123549/https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5369194/), something that probably stay for a lifetime. Even individuals who claim to have recovered are unable to resume pre-illness activity levels. It was a hard reality to swallow. I had to stop working, as pushing my limits only made the situation worse. With my limited mental capabilities, I started to research and implement everything I could do to improve my health situation.
+Unfortunately, the problems of fatigue relapses after being exposed to mild (physical) stress remained. After a series of doctor’s visits, I was diagnosed with Post-Infectious Fatigue Syndrome. A chronic diagnosis, from which less than [10% fully recover](https://web.archive.org/web/20221125123549/https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5369194/), something that probably stay for a lifetime. Even individuals who claim to have recovered are unable to resume pre-illness activity levels. It was a hard reality to swallow. I had to stop working, as pushing my limits only made the situation worse. With my limited mental capabilities, I started to research and implement everything I could do to improve my health situation.
 
 **Acceptance**
 
