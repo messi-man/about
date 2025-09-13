@@ -1,5 +1,8 @@
 Tim Cools' Journey
 
+[Instagram](https://www.instagram.com/tim_cools_net/)
+[Facebook](https://www.facebook.com/profile.php?id=718334744)
+
 **Life seemed easy, for a while**
 
 I was always drawn to technology and science. I rolled into software development as a 10-year-old because I liked to solve abstract puzzles. As a child, the amount of electronics I pulled apart were countless.
