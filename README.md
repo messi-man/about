@@ -2,6 +2,7 @@ Tim Cools' Journey
 
 [Instagram](https://www.instagram.com/tim_cools_net/)
 [Facebook](https://www.facebook.com/profile.php?id=718334744)
+[Github](https://github.com/tim-cools/)
 
 **Life seemed easy, for a while**
 
